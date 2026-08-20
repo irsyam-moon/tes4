@@ -1,1 +1,1 @@
-pandu baik
+pandu baikd
